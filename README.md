@@ -1,3 +1,2 @@
 
-
-https://github.com/bis1mus192
+https://github.com/bis1mus192/slozhno-sosredotochitsya-ad
